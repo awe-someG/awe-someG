@@ -7,9 +7,22 @@
 </p>
 
 <p align="center">
+${\color{#54577e}\text{꒱⠀⠀ׁ⠀⠀ׅ⠀⠀⠀𝆬⠀⠀⠀ᘏ⠀⠀𝓁𝑖𝑡𝑡𝑙𝑒⠀𝒶𝑛𝑔𝑒𝑙⠀⠀ׅ⠀⠀⠀𝆬⠀⠀⠀ָ֢⠀⠀⠀ෆ}}$ <br>
+${\color{#54577e}\text{꒰ 𓋰  𓈒   𓏫  ✿   ݁       ᧆ    ꒱}}$
+</p>
+
+<p align="center">
   <img src="https://file.garden/aja_BBPkmj7ol07P/Untitled58_20261021214922.png" alt="Alt Text" width="600" />
 </p>
 
 <p align="center">
-${\color{#938989}\text{we’re⠀usually⠀nonverbal⠀,⠀so⠀don’t expect⠀replies⠀unless⠀close⠀friends}}$
+${\color{#CEA192}\text{ ﾟ⠀˖⠀⠀ꕀ⠀⠀block⠀⠀freely⠀⠀⠀◟⠀⠀⠀basic⠀⠀dni⠀⠀standard⠀⠀⠀⠀⠀౨ৎ}}$ <br>
+${\color{#CEA192}\text{frq⠀⠀dms⠀⠀,⠀⠀ask⠀⠀!}}$ <br>
+${\color{#CEA192}\text{cant⠀⠀approach⠀⠀first⠀⠀♡ ۫⠀୧}}$
 </p>
+<details align="center">
+<summary><img src="https://64.media.tumblr.com/f8aafb2f87ded3bb79689124dca43ada/2c0bb3b83ae22ac8-09/s75x75_c1/e6fbcff24d57153900ebff441dad1c865e3fa3a7.gifv" alt="Alt Text" width="15" />⠀⠀ ${\color{#54577e}\text{typology ꒱}}$</summary>
+<sub>
+  ${\color{#CEA192}\text{INTP⠀⠀3w2⠀⠀sp/sx⠀⠀351⠀⠀FVEL¹¹²¹⠀⠀ISTJ⠀⠀chol-sang⠀⠀[M]CTIDRG⠀⠀S[L]/O/EI}}$ <br>
+</sub>
+</details>
