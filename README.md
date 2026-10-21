@@ -7,5 +7,10 @@
 </p>
 
 <p align="center">
-  wip profile
+  <img src="https://file.garden/aja_BBPkmj7ol07P/Untitled58_20261021214922.png" alt="Alt Text" width="700" />
+</p>
+
+<p align="center">
+${\color{#938989}\text{wip profile}}$ <br>
+${\color{#98948E}\text{hi}}$
 </p>
