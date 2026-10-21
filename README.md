@@ -28,3 +28,7 @@ ${\color{#CEA192}\text{cant⠀⠀approach⠀⠀first⠀⠀♡ ۫⠀୧}}$
 </sub>
 </p>
 </details>
+<br>
+<p align="center">
+  <img src="https://file.garden/aja_BBPkmj7ol07P/Untitled59_20261021231435.png" alt="Alt Text" width="600" />
+</p>
