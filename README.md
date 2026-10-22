@@ -29,9 +29,11 @@ ${\color{#646682}\text{✿}}$
 </p>
 
 <p align="center">
-<img src="https://file.garden/aja_BBPkmj7ol07P/Rentry" alt="Alt Text" width="95" />⠀⠀⠀⠀
-<img src="https://file.garden/aja_BBPkmj7ol07P/Atabook" alt="Alt Text" width="80" />⠀⠀⠀⠀
-<img src="https://file.garden/aja_BBPkmj7ol07P/Straw" alt="Alt Text" width="100" />
+<img src="https://file.garden/aja_BBPkmj7ol07P/Rentry" alt="Alt Text" width="95" />ㅤㅤ⠀
+<img src="https://file.garden/aja_BBPkmj7ol07P/Atabook" alt="Alt Text" width="80" />ㅤㅤ⠀
+<a href="https://awe-someg-straw.straw.page/">⠀
+  <img src="https://file.garden/aja_BBPkmj7ol07P/Straw" alt="Alt Text" width="100" />
+</a>
 </p>
 
 <p align="center">
