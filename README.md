@@ -16,8 +16,8 @@ ${\color{#54577e}\text{꒰ 𓋰⠀⠀𓈒⠀⠀𓏫⠀⠀✿   ݁ ⠀⠀⠀⠀�
 </p>
 
 <p align="center">
-${\color{#CEA192}\text{ ﾟ⠀˖⠀⠀ꕀ⠀⠀block⠀⠀freely⠀⠀⠀◟⠀⠀⠀basic⠀⠀dni⠀⠀standard⠀⠀⠀⠀⠀౨ৎ}}$ <br>
-${\color{#CEA192}\text{frq⠀⠀dms⠀⠀,⠀⠀ask⠀⠀!}}$ <br>
+${\color{#CEA192}\text{ ﾟ⠀˖⠀⠀ꕀ⠀⠀they⠀/⠀them⠀⠀⠀◟⠀⠀⠀basic⠀⠀dni⠀⠀aro lithro⠀⠀𓎟𓎟⠀⠀awsomeg fictkin⠀⠀౨ৎ}}$ <br>
+${\color{#CEA192}\text{ask⠀⠀4⠀⠀frq⠀/⠀dms⠀⠀﹕⠀⠀nonverb⠀⠀(⠀unls close⠀)⠀⠀﹕⠀⠀often⠀⠀offtab}}$ <br>
 ${\color{#CEA192}\text{cant⠀⠀approach⠀⠀first⠀⠀♡ ۫⠀୧}}$
 </p>
 <details align="center">
